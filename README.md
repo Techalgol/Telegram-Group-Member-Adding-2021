@@ -3,7 +3,7 @@
 
       👇👇👇
 🎁 Buy Contact Me 
-👉My Telegram--> https://t.me/adding_services  
+👉My Telegram--> https://t.me/airdropbd49 
 
 BTC Wallet bc1qsfravvu2e402s2pjzcvt8yp3uyu9na866ezrp5 
 
