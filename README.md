@@ -3,7 +3,7 @@
 
       👇👇👇
 🎁 Buy Contact Me 
-👉My Telegram--> https://t.me/airdropbd49 
+👉My Telegram--> https://t.me/Techalgol
 
 BTC Wallet bc1qsfravvu2e402s2pjzcvt8yp3uyu9na866ezrp5 
 
